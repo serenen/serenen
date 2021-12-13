@@ -1,0 +1,4 @@
+- 👋 I'm Molly or Seren!
+- 👀 I’m interested in alert systems and coding.
+- 🌱 I’m currently learning Javascript.
+- 📫 You can reach me on Discord, it is seren#7842
