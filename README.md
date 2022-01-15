@@ -4,4 +4,4 @@
 - You can reach me on Discord, it is seren#7842 
 - I speak English/Melayu
 
-![hotdogcat](https://user-images.githubusercontent.com/70671015/149607669-9b85dfb4-ec03-4e56-ab9f-904827d7e194.jpg)
+![unknown](https://user-images.githubusercontent.com/70671015/149609823-ede751a8-f5a1-4c35-81b1-105551ce22bd.png)
